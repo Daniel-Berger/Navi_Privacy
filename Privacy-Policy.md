@@ -8,6 +8,8 @@ If you choose to use our Service, then you agree to the collection and use of in
 
 The terms used in this Privacy Policy have the same meanings as in our Terms and Conditions, which is accessible at Navi- City Search Travel Guide unless otherwise defined in this Privacy Policy.
 
+As an Amazon Associate I earn from qualifying purchases.
+
 **Information Collection and Use**
 
 For a better experience, while using our Service, we may require you to provide us with certain personally identifiable information, including but not limited to Location. The information that we request will be retained by us and used as described in this privacy policy.
